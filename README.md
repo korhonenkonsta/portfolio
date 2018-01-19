@@ -1,4 +1,4 @@
-## Welcome Jyri
+Welcome Jyri
 
 To the portfolio
 
